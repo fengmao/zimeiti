@@ -1,0 +1,25 @@
+{
+  "name": "zimeiti",
+  "description": "自媒体文章列表",
+  "version": "0.0.8",
+  "author": {
+    "name": "fengmao"
+  },
+  "repository": "https://github.com/fengmao/zimeiti",
+  "main": "lib/index.js",
+  "bugs": {
+    "url": "https://github.com/fengmao/zimeiti/issues"
+  },
+  "scripts": {},
+  "dependencies": {
+    "bencode": "^0.7.0",
+    "bitfield": "^1.1.2"
+  },
+  "keywords": [
+    "torrent",
+    "bittorrent",
+    "p2p",
+    "dht"
+  ],
+  "license": "MIT"
+}
