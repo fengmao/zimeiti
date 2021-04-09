@@ -1,206 +1,2613 @@
-疫情期间，很多人的收入多多少少都受到了影响。当然，有的人坐吃山空，也有的人收入翻倍。
-
-我仔细观察了一下这些收入翻倍的人，发现他们基本都离不开三个字。哪三个字？就是**自媒体**。
-
-自媒体是什么？
-
-自媒体是指以内容为中心，个人创作者以网络的形式进行内容传播，从而获得一定关注度和影响力的方式。**自媒体的内容形态非常广泛，文章、动态短文、音频、闻达、图集、短视频、长视频、直播等等都是自媒体可以采用的形式。**
-
-目前从事自媒体的人群有多么庞大呢？根据艾瑞网的调查数据，目前我国全职从事自媒体的人数达到了370万以上，而兼职人群则超过了600万。可见，做自媒体已经是大势所趋。
-
-**自媒体做得好的人，到底有多赚？**
-
-精品大号的“一条”，非头条广告费就达到了百万；
-
-家庭美学定位的“卡娃微卡”，一条广告费超过10万；
-
-papi酱，在微博上迅速走红后，短期内广告价格上涨到了2200万……
-
-![图片1.png](https://upload-images.jianshu.io/upload_images/1355291-16834171789a6f87.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
-
-
-（微信公众号平台报价）
-
-![图片2.png](https://upload-images.jianshu.io/upload_images/1355291-f2b0e34a5f78b360.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
-
-
-（抖音星图达人的预估报价）
-
-博多·舍费尔在《财富自由之路》中分析个人收入构成时提到，**个人收入的高低其实与五个因素息息相关，分别是“能力、精力、影响力/知名度、创意和自我评价”，而其中，影响力是最强的杠杆。**
-
-自媒体就是你能够利用好的扩大个人影响力的最佳方式。抓住了自媒体机会的人，现在都已经赚得盆满钵满。
-
-如果你只是低头做事，那么你的才华很有可能只有老板知道，也只有老板会付给你薪酬。但是，当你在自媒体上做分享时，你的知识可以送达千千万万的粉丝，他们同样会为你的付出买单。你只需要工作一次，就能获得上不封顶的报酬。
-
-一份时间卖出一次，想拿到百万年薪难度系数太高。一份时间卖出很多次，实现财富自由，其实并没有想象中那么难。
-
-或许你会问，普通人也能通过做自媒体赚到钱吗？
-
-答案是肯定的。农村四哥王荣琪，是一名从四川泸州到南方的打工仔，他从零开始经营今日头条，短短几个月，就拥有了380万粉丝，收益过万，还获得“2019今日头条年度生机创作者”称号。
-
-![图片3.png](https://upload-images.jianshu.io/upload_images/1355291-8876c5bd9bd681a0.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
-
-
-（农村四哥的演讲）
-
-现在的自媒体风格非常包容，哪怕你只是一个普通人，只要你掌握了一定的方法，做的内容有趣、有料，那么，你就能收获粉丝的信赖，在自媒体的红利中分得一杯羹。
-
-**凯文·凯利的1000粉丝理论告诉我们，只要能找到1000个铁杆粉丝，他们愿意为你的内容买单，你就足以生存得很好。**
-
-02
-
-**现在能赚钱的自媒体平台有哪些呢？**
-
-这个可就多了。图文类的自媒体平台有：今日头条、百家号、企鹅号、大鱼号、网易号、简书、搜狐视频号、微信公众号、知乎等等。
-
-![图片4.png](https://upload-images.jianshu.io/upload_images/1355291-3c8c6ff0f65bdedf.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
-
-视频类的自媒体平台有：抖音小视频、西瓜视频、火山小视频、快手等等。
-
-![图片5.png](https://upload-images.jianshu.io/upload_images/1355291-39b07581fd2aa74b.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
-
-不管你是想做哪个类型内容，都不愁找不到平台发布。而且，不同的平台对于创作者都还会有相应的扶持计划和奖励计划。只要你持续产出高质量内容，就不愁没有收入。
-
-下面详细地为大家讲解三个目前最能赚钱的平台：
-
-1、**今日头条**
-
-**<u>平台特点：</u>**
-
-今日头条是北京字节跳动有限公司开发的一款搜索引擎产品，特点在于算法推荐，自动匹配内容和用户。新手想要从自媒体赚到钱，从今日头条入手是最好的，因为今日头条是官方鼓励赚钱，平台流量非常大，日活1.2亿+，只要你坚持发布内容就能找到对应的粉丝。
-
-**<u>运营方法：</u>**
-
-今日头条可以通过微头条、图集、长图文、问答等内容形式来变现，收益十分可观。
-
-微头条：非常自由，字数、配图、领域、格式都没有限制，涨粉快，达到一定粉丝数量还可以开通商品带货功能，轻轻松松就能获得卖货收益。通过写优质微头条，可以获得加V认证，即“XX 领域优质创作者”勋章，后续能获得更多的流量扶持。
-
-图文内容：图文内容也有阅读收益，如果拿到原创标，收益会更高。针对优质的长图文，今日头条推出青云计划，单篇图文不仅仅可以获得阅读收益，还能获得平台奖励，最低收益300元，上不封顶。
-
-![图片6.png](https://upload-images.jianshu.io/upload_images/1355291-a41ff969f95a265c.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
-
-问答变现：今日头条的问答有另一个名称，叫悟空问答。只要开通了问答收益，针对你感兴趣或者有把握的领域进行回答，就能通过回答问题获得一定的收益。问答里面也有“问答青云计划”，一档奖金300，二档奖金100，随手一个回答就也能有三位数的收入，不香么？
-
-2、**百家号**
-
-**<u>平台特点：</u>**
-
-百家号是百度专门为内容创作者打造的一个集内容创作、发布及变现为一体的互联网平台。背靠百度这个最大的中文搜索引擎网站，百家号的流量和收益也是值得关注的。
-
-**<u>运营方法：</u>**
-
-图文收益：百家号的图文收益目前是10000阅读/30元，可以说是主流自媒体平台之首了。在百家号上写图文内容，只要阅读量过万，获得几百收益并不难。
-
-其他收益：百家号和今日头条相似，同样也有广告分成，问答收入，原创标收益，并且可以自荐文章，如果入选的话就可以获得至少100元+的收入和流量支持。
-
-带货变现：百家号的文章中可以插入商品链接，通过写文章来带货，获得一定的带货分成。有的人通过带货，一篇文章轻轻松松就能获得几千收益。
-
-同时，百家号上面也有非常多的创作者扶持计划，例如“百+计划”，百+计划的上榜者最高可以获得2万元的收益。很多的创作活动也都可以参与，都有机会获得金额不等的奖励。
-
-3、**微信公众号**
-
-**<u>平台特点：</u>**
-
-微信公众号是基于微信社交平台而存在的个人自媒体，其重要性和必要性不言而喻。虽然说，微信公众号现在已经是大号林立，但是也依然有很多自媒体人，独辟蹊径，后来居上，短时间内获得大量粉丝，成为一匹突围的黑马。现在微信也相应开放了视频号，微信公众号极有可能会迎来下一个春天。
-
-**<u>运营方法：</u>**
-
-相对于今日头条和百家号，微信公众号对于自媒体人的要求会稍微高一些。因为微信公众号一般是需要通过爆款文章、刷屏文章来获得关注，粉丝数和粉丝忠诚度决定了微信公众号能够赚到多少钱。
-
-微信公众号的收益主要来自于硬广和软广。微信公众号图文下面会投放广告，通过粉丝点击广告而获得收入，但这个收入不是特别多。真正可观的是微信公众号号主自己接广告，发软文，一般来说，一条软文广告的收益在几千到百万不等。
-
-另外，微信公众号号主自身也可以在公众号上推出付费阅读、社群、课程等付费服务，从而获得一定的收益。
-
-03
-
-做自媒体需要具备哪些技能？如何培养这些技能？
-
-1、**写作能力**
-
-做自媒体的人都需要一定的文字功底，这是最基础的能力。**不要求你妙笔生花，文采斐然，但是最起码你要把内容讲清楚，讲透彻。**首先，你要能够把自己的观点完整地叙述出来，思路顺畅，然后在此基础上去追求文字的技巧性，做到把握节奏，引人入胜，让人有读下去的欲望。
-
-对于写作的把握和对文字的驾驭，这些都是可以通过技能学习和长期练习得来的。对于文案的写作，其实都有一定的规律可循，爆款文章的思路很多时候都是共通的。**只要你懂得了其中的思维，自然就可以举一反三。**
-
-2、**用户思维**
-
-毫无疑问，做自媒体的人，粉丝就是我们的经济来源。如果我们总是按照我们自己的想法去做自媒体，写自己想写的文章，那么后果就是阅读量惨淡，折腾一个月也不见得有收益。**真正想赚到钱，我们就应该拥有用户思维，去关注用户的关注点在哪里，用户的真正需求是什么，从而做好自己的账号定位和内容规划。**
-
-用户思维要怎么培养？第一步，对标。找到自己所在领域自媒体排行榜前10的大号。第二部，拆解。去做账号的拆解和分析，剖析他们的账号定位、选题方向、文章风格、粉丝运营都是怎么做的。在能力允许的情况下，还可以开展市场调研，真正了解你的目标用户需求，再对症下药，给出解决方案。
-
-3、**紧跟热点**
-
-现在的信息爆炸社会，每个人每天都要应对成百上千的信息资讯。你的内容如何在众多的内容中脱颖而出，就取决于你的内容是否能够第一时间吸引到用户的注意力。
-
-眼球经济时代，顾名思义，就是你的内容必须第一时间抓住用户的眼球，没有注意力就没有利润，没有利润就注定要失败，而**获取用户注意力的捷径就是紧跟热点。**
-
-**何为热点？其实是用户自己投票选出来的议题。**也就是说，不需要我们再去苦心积虑地做选题，只要紧跟热点，这些内容就是用户自己想要看到的。例如，最近乘风破浪的姐姐们十分火爆，只要与该热点相关的内容，基本上阅读量都不会太差。
-
-所以，自媒体人一定要学会追踪热点，要有把自己的独家内容与时事热点相结合的能力，这样才能在保证最大打开率的同时输出自己的观点。
-
-4、**善用工具**
-
-作为自媒体人，一个人同时要兼顾许多工作，既要收集资料，又要做好选题，既要撰写文章，还要会P图修图，常常会手忙脚乱，费时又费力。**如果能善用工具，就能起到事半功倍的效果。**
-
-那么，自媒体人要怎么培养这个技能呢？首先就是要时刻名铭记工具思维，当遇到一个任务的时候，可以搜索一下是否有工具可以简化该任务流程，或者可以提高工作效率，对于别人推荐的工具，可以多进行尝试，选择适合自己的工具。
-
-在这里介绍几个自媒体人经常会用到的工具：
-
-1）资料收集方面：
-
-果汁排行榜[<u>http://www.guozhivip.com/rank/index.html</u>](http://www.guozhivip.com/rank/index.html)
-
-各类榜单排名大全，绝对是选题蹭热点的不二利器
-
-![图片7.png](https://upload-images.jianshu.io/upload_images/1355291-ae1c255da903ba3b.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
-
-大数据导航网[<u>http://hao.199it.com/</u>](http://hao.199it.com/)
-
-涵盖了各类指数网站和互联网工具，非常适合寻找相关材料和论据。
-
-![图片8.png](https://upload-images.jianshu.io/upload_images/1355291-15ae30df1dc8c957.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
-
-2）文章撰写方面：
-
-石墨文档：[<u>https://shimo.im/welcome</u>](https://shimo.im/welcome)
-
-实时保存，多人协作，手机和电脑均可操作，方便快捷，不用担心用Word中途断电的情况
-
-![图片9.png](https://upload-images.jianshu.io/upload_images/1355291-ecf4977f31b63a54.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
-
-坚果云：[<u>https://www.jianguoyun.com/</u>](https://www.jianguoyun.com/)
-
-可以实现多终端保存文件，并且自动更新，手机和电脑能够同步，对于写作者来说是一大福音，随时随地都能码字了
-
-![图片10.png](https://upload-images.jianshu.io/upload_images/1355291-7a522eeefb8ac2bf.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
-
-3）文章排版方面：
-
-秀米：[<u>https://xiumi.us/#/</u>](#/)
-
-一键排版、文章布局调整、团队文章等功能非常实用
-
-![图片11.png](https://upload-images.jianshu.io/upload_images/1355291-82d5bcf021f25a95.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
-
-135排版器：[<u>https://www.135editor.com/</u>](https://www.135editor.com/)
-
-样式繁多，小清新风格也是一大特色
-
-![图片12.png](https://upload-images.jianshu.io/upload_images/1355291-38cf47559db6c6fd.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
-
-5、图片制作网站：
-
-创客贴：[<u>https://www.chuangkit.com/</u>](https://www.chuangkit.com/)
-
-在线图片编辑器，很多免费模板可以直接套用，封面图海报分分钟搞定
-
-![图片13.png](https://upload-images.jianshu.io/upload_images/1355291-0f2cf7fa6644bd1f.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
-
-Canva：[<u>https://www.canva.cn/</u>](https://www.canva.cn/templates/?utm_medium=paid&utm_source=baidu&utm_campaign=ACQ-brand-zone&utm_term=canva&utm_content=sem)
-
-简单好用的在线设计平台，设计范围更广，模板样式更偏向于高端时尚风格
-
-![图片14.png](https://upload-images.jianshu.io/upload_images/1355291-5cc9b31fe4b50278.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
-
-04
-
-由于本文的目标读者都是程序员群体，最后给大家推荐一个阅读英文技术文档的网站，[https://doc.liusha.io](https://doc.liusha.io)，要想学好技术，英语是非常重要了，除了发展自媒体副业，程序员本业也是要好好发展的，大家觉得呢？
+# 字节跳动最常考的 64 道JS算法题
+
+## 缘起
+
+现在大厂面试中，算法题几乎为必考项，且近几年频现 LeetCode 真题，此篇为拿到字节、腾讯、京东 Offer 的笔者本人在准备面试过程中亲自刷过以及遇到过高频算法题。文章内容会分模块整理，对于笔者在面试过程中遇到的真题，会给予着重 【🔥】标出。
+
+同时，可以毫不客气的说，如果你准备时间有限，又想追求算法题准备效率最大化，那么你只需要按照大纲把下面的题目刷完，并把代码烂熟于心，就几乎可以应对 90% 的面试算法考题了。
+
+整理这篇内容的目的一个是笔者在之前准备面试时的一点积累，而它确实也帮助笔者在面试算法题中过关斩将，同时呢，也希望能够在金三银四给予拼搏的你，一点点帮助就好！💪
+
+文末有福利 ：）😈
+
+本篇内容包括如下模块：
+
+*   高频算法题系列：链表
+*   【🔥】【有真题】高频算法题系列：字符串
+*   【🔥】【有真题】高频算法题系列：数组问题
+*   高频算法题系列：二叉树
+*   【🔥】高频算法题系列：排序算法
+*   【🔥】高频算法题系列：二分查找
+*   【🔥】高频算法题系列：动态规划
+*   高频算法题系列：BFS
+*   【🔥】高频算法题系列：栈
+*   【🔥】高频算法题系列：DFS
+*   【🔥】高频算法题系列：回溯算法
+
+其中标🔥的部分代表非常高频的考题，其中不乏笔者遇到的原题。其中对于每一类，首先会列出包含的考题，然后针对每一道考题会给出难度、考察知识点、是否是面试真题，在每道题详细介绍时，还会给出每道题的 LeetCode 链接，帮助读者理解题意，以及能够进行实际的测验，还可以观看其他人的答案，更好的帮助准备。
+
+## 高频算法题系列：链表
+
+笔者遇到的高频链表题主要包含这几道：
+
+*   通过链表的后续遍历判断回文链表问题 【简单】
+*   链表的反向输出 【简单】
+*   合并 K 个升序链表 【困难】
+*   K个一组翻转链表 【困难】
+*   环形链表 【简单】
+*   排序链表 【中等】
+*   相交链表 【简单】
+
+### 前序遍历判断回文链表
+
+👉 [【LeetCode 直通车】：234 回文链表（简单）](https://leetcode-cn.com/problems/palindrome-linked-list/)
+
+#### 题解1
+
+利用链表的后续遍历，使用函数调用栈作为后序遍历栈，来判断是否回文
+
+→点击展开查看
+
+```
+
+/**
+  *
+  */
+var isPalindrome = function(head) {
+    let left = head;
+    function traverse(right) {
+        if (right == null) return true;
+        let res = traverse(right.next);
+        res = res && (right.val === left.val);
+        left = left.next;
+        return res;
+    }
+    return traverse(head);
+};
+
+复制代码
+```
+
+#### 题解2
+
+通过 快、慢指针找链表中点，然后反转链表，比较两个链表两侧是否相等，来判断是否是回文链表
+
+→点击展开查看
+
+```
+
+/**
+  *
+  */
+var isPalindrome = function(head) {
+    // 反转 slower 链表
+    let right = reverse(findCenter(head));
+    let left = head;
+    // 开始比较
+    while (right != null) {
+        if (left.val !== right.val) {
+            return false;
+        }
+        left = left.next;
+        right = right.next;
+    }
+    return true;
+}
+function findCenter(head) {
+    let slower = head, faster = head;
+    while (faster && faster.next != null) {
+        slower = slower.next;
+        faster = faster.next.next;
+    }
+    // 如果 faster 不等于 null，说明是奇数个，slower 再移动一格
+    if (faster != null) {
+        slower = slower.next;
+    }
+    return slower;
+}
+function reverse(head) {
+    let prev = null, cur = head, nxt = head;
+    while (cur != null) {
+        nxt = cur.next;
+        cur.next = prev;
+        prev = cur;
+        cur = nxt;
+    }
+    return prev;
+}
+
+复制代码
+```
+
+### 反转链表
+
+👉 [【LeetCode 直通车】：206 反转链表（简单）](https://leetcode-cn.com/problems/reverse-linked-list/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * Definition for singly-linked list.
+ * function ListNode(val) {
+ *     this.val = val;
+ *     this.next = null;
+ * }
+ */
+/**
+ * @param {ListNode} head
+ * @return {ListNode}
+ */
+var reverseList = function(head) {
+    if (head == null || head.next == null) return head;
+    let last = reverseList(head.next);
+    head.next.next = head;
+    head.next = null;
+    return last;
+};
+
+复制代码
+```
+
+### 合并K个升序链表
+
+👉 [【LeetCode 直通车】：23 合并K个升序链表（困难）](https://leetcode-cn.com/problems/merge-k-sorted-lists/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * Definition for singly-linked list.
+ * function ListNode(val) {
+ *     this.val = val;
+ *     this.next = null;
+ * }
+ */
+/**
+ * @param {ListNode[]} lists
+ * @return {ListNode}
+ */
+var mergeKLists = function(lists) {
+    if (lists.length === 0) return null;
+    return mergeArr(lists);
+};
+function mergeArr(lists) {
+    if (lists.length <= 1) return lists[0];
+    let index = Math.floor(lists.length / 2);
+    const left = mergeArr(lists.slice(0, index))
+    const right = mergeArr(lists.slice(index));
+    return merge(left, right);
+}
+function merge(l1, l2) {
+    if (l1 == null && l2 == null) return null;
+    if (l1 != null && l2 == null) return l1;
+    if (l1 == null && l2 != null) return l2;
+    let newHead = null, head = null;
+    while (l1 != null && l2 != null) {
+        if (l1.val < l2.val) {
+            if (!head) {
+                newHead = l1;
+                head = l1;
+            } else {
+                newHead.next = l1;
+                newHead = newHead.next;
+            }
+            l1 = l1.next;
+        } else {
+            if (!head) {
+                newHead = l2;
+                head = l2;
+            } else {
+                newHead.next = l2;
+                newHead = newHead.next;
+            }
+            l2 = l2.next;
+        }
+    }
+    newHead.next = l1 ? l1 : l2;
+    return head;
+}
+
+复制代码
+```
+
+### K 个一组翻转链表
+
+👉 [【LeetCode 直通车】：25 K 个一组翻转链表（困难）](https://leetcode-cn.com/problems/reverse-nodes-in-k-group/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * Definition for singly-linked list.
+ * function ListNode(val) {
+ *     this.val = val;
+ *     this.next = null;
+ * }
+ */
+/**
+ * @param {ListNode} head
+ * @param {number} k
+ * @return {ListNode}
+ */
+var reverseKGroup = function(head, k) {
+    let a = head, b = head;
+    for (let i = 0; i < k; i++) {
+        if (b == null) return head;
+        b = b.next;
+    }
+    const newHead = reverse(a, b);
+    a.next = reverseKGroup(b, k);
+    return newHead;
+};
+function reverse(a, b) {
+    let prev = null, cur = a, nxt = a;
+    while (cur != b) {
+        nxt = cur.next;
+        cur.next = prev;
+        prev = cur;
+        cur = nxt;
+    }
+    return prev;
+}
+
+复制代码
+```
+
+### 环形链表
+
+👉 [【LeetCode 直通车】：141 环形链表（简单）](https://leetcode-cn.com/problems/linked-list-cycle/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * Definition for singly-linked list.
+ * function ListNode(val) {
+ *     this.val = val;
+ *     this.next = null;
+ * }
+ */
+/**
+ * @param {ListNode} head
+ * @return {boolean}
+ */
+var hasCycle = function(head) {
+    if (head == null || head.next == null) return false;
+    let slower = head, faster = head;
+    while (faster != null && faster.next != null) {
+        slower = slower.next;
+        faster = faster.next.next;
+        if (slower === faster) return true;
+    }
+    return false;
+};
+
+复制代码
+```
+
+### 排序链表
+
+👉 [【LeetCode 直通车】：148 排序链表（中等）](https://leetcode-cn.com/problems/sort-list/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * Definition for singly-linked list.
+ * function ListNode(val) {
+ *     this.val = val;
+ *     this.next = null;
+ * }
+ */
+/**
+ * @param {ListNode} head
+ * @return {ListNode}
+ */
+var sortList = function(head) {
+    if (head == null) return null;
+    let newHead = head;
+    return mergeSort(head);
+};
+function mergeSort(head) {
+    if (head.next != null) {
+        let slower = getCenter(head);
+        let nxt = slower.next;
+        slower.next = null;
+        console.log(head, slower, nxt);
+        const left = mergeSort(head);
+        const right = mergeSort(nxt);
+        head = merge(left, right);
+    }
+    return head;
+}
+function merge(left, right) {
+    let newHead = null, head = null;
+    while (left != null && right != null) {
+        if (left.val < right.val) {
+            if (!head) {
+                newHead = left;
+                head = left;
+            } else {
+                newHead.next = left;
+                newHead = newHead.next;
+            }
+            left = left.next;
+        } else {
+            if (!head) {
+                newHead = right;
+                head = right;
+            } else {
+                newHead.next = right;
+                newHead = newHead.next;
+            }
+            right = right.next;
+        }
+    }
+    newHead.next = left ? left : right;
+    return head;
+}
+function getCenter(head) {
+    let slower = head, faster = head.next;
+    while (faster != null && faster.next != null) {
+        slower = slower.next;
+        faster = faster.next.next;
+    }
+    return slower;
+}
+
+复制代码
+```
+
+### 相交链表
+
+👉 [【LeetCode 直通车】：160 相交链表（简单）](https://leetcode-cn.com/problems/intersection-of-two-linked-lists/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * Definition for singly-linked list.
+ * function ListNode(val) {
+ *     this.val = val;
+ *     this.next = null;
+ * }
+ */
+/**
+ * @param {ListNode} headA
+ * @param {ListNode} headB
+ * @return {ListNode}
+ */
+var getIntersectionNode = function(headA, headB) {
+    let lastHeadA = null;
+    let lastHeadB = null;
+    let originHeadA = headA;
+    let originHeadB = headB;
+    if (!headA || !headB) {
+        return null;
+    }
+    while (true) {
+        if (headB == headA) {
+            return headB;
+        }
+        if (headA && headA.next == null) {
+            lastHeadA = headA;
+            headA = originHeadB;
+        } else {
+            headA = headA.next;
+        }
+        if (headB && headB.next == null) {
+            lastHeadB = headB
+            headB = originHeadA;
+        } else {
+            headB = headB.next;
+        }
+        if (lastHeadA && lastHeadB && lastHeadA != lastHeadB) {
+            return null;
+        }
+    }
+    return null;
+};
+
+复制代码
+```
+
+## 【🔥】高频算法题系列：字符串
+
+主要有以下几类高频考题：
+
+*   最长回文子串 【中等】【双指针】【面试真题】
+*   最长公共前缀 【简单】【双指针】
+*   无重复字符的最长子串【中等】【双指针】
+*   最小覆盖子串 【困难】【滑动窗口】【面试真题】
+
+### 【面试真题】最长回文子串【双指针】
+
+👉 [【LeetCode 直通车】：5 最长回文子串（中等）](https://leetcode-cn.com/problems/longest-palindromic-substring/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {string} s
+ * @return {string}
+ */
+var longestPalindrome = function(s) {
+    if (s.length === 1) return s;
+    let maxRes = 0, maxStr = '';
+    for (let i = 0; i < s.length; i++) {
+        let str1 = palindrome(s, i, i);
+        let str2 = palindrome(s, i, i + 1);   
+        if (str1.length > maxRes) {
+            maxStr = str1;
+            maxRes = str1.length;
+        }
+        if (str2.length > maxRes) {
+            maxStr = str2;
+            maxRes = str2.length;
+        }
+    }
+    return maxStr;
+};
+function palindrome(s, l, r) {
+    while (l >= 0 && r < s.length && s[l] === s[r]) {
+        l--;
+        r++;
+    }
+    return s.slice(l + 1, r);
+}
+
+复制代码
+```
+
+### 最长公共前缀【双指针】
+
+👉 [【LeetCode 直通车】：14 最长公共前缀（简单）](https://leetcode-cn.com/problems/longest-common-prefix/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {string[]} strs
+ * @return {string}
+ */
+var longestCommonPrefix = function(strs) {
+    if (strs.length === 0) return "";
+    let first = strs[0];
+    if (first === "") return "";
+    let minLen = Number.MAX_SAFE_INTEGER;
+    for (let i = 1; i < strs.length; i++) {
+        const len = twoStrLongestCommonPrefix(first, strs[i]);
+        minLen = Math.min(len, minLen);
+    }
+    return first.slice(0, minLen);
+};
+function twoStrLongestCommonPrefix (s, t) {
+    let i = 0, j = 0;
+    let cnt = 0;
+    while (i < s.length && j < t.length) {
+        console.log(s[i], t[j], cnt)
+        if (s[i] === t[j])  {
+            cnt++;
+        } else {
+            return cnt;
+        }
+        i++;
+        j++;
+    }
+    return cnt;
+}
+
+复制代码
+```
+
+### 无重复字符的最长子串【双指针】
+
+👉 [【LeetCode 直通车】：3 无重复字符的最长子串（中等）](https://leetcode-cn.com/problems/longest-substring-without-repeating-characters/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {string} s
+ * @return {number}
+ */
+var lengthOfLongestSubstring = function(s) {
+  let window = {};
+  let left = 0, right = 0;
+  let maxLen = 0, maxStr = '';
+  while (right < s.length) {
+    let c = s[right];
+    right++;
+    if (window[c]) window[c]++;
+    else window[c] = 1
+    while (window[c] > 1) {
+      let d = s[left];
+      left++;
+      window[d]--;
+    }
+    if (maxLen < right - left) {
+      maxLen = right - left;
+    }
+  }
+  return maxLen;
+};
+
+复制代码
+```
+
+### 【面试真题】 最小覆盖子串【滑动窗口】
+
+👉 [【LeetCode 直通车】：76 最小覆盖子串（困难）](https://leetcode-cn.com/problems/minimum-window-substring/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {string} s
+ * @param {string} t
+ * @return {string}
+ */
+var minWindow = function(s, t) {
+    let need = {}, window = {};
+    for (let c of t) {
+        if (!need[c]) need[c] = 1;
+        else need[c]++;
+    }
+    let left = 0, right = 0;
+    let valid = 0, len = Object.keys(need).length;
+    let minLen = s.length + 1, minStr = '';
+    while (right < s.length) {
+        const d = s[right];
+        right++;
+        if (!window[d]) window[d] = 1;
+        else window[d]++;
+        if (need[d] && need[d] === window[d]) {
+            valid++;
+        }
+        console.log('left - right', left, right);
+        while (valid === len) {
+            if (right - left < minLen) {
+                minLen = right - left;
+                minStr = s.slice(left, right);
+            }
+            console.lo
+            let c = s[left];
+            left++;
+            window[c]--;
+            if (need[c] && window[c] < need[c]) {
+                valid--;
+            }
+        }
+    }
+    return minStr;
+};
+
+复制代码
+```
+
+## 【🔥】高频算法题系列：数组问题
+
+主要有几类高频考题：
+
+*   俄罗斯套娃信封问题【困难】【排序+最长上升子序列】【面试真题】
+*   最长连续递增序列 【简单】【双指针】
+*   最长连续序列【困难】【哈希表】
+*   盛最多水的容器【困难】【面试真题】
+*   寻找两个正序数组的中位数【困难】【双指针】
+*   删除有序数组中的重复项【简单】【快慢指针】
+*   和为K的子数组【中等】【哈希表】
+*   nSum 问题【系列】【简单】【哈希表】
+*   接雨水【困难】【暴力+备忘录优化】【面试真题】
+*   跳跃游戏【系列】【中等】【贪心算法】
+
+### 【面试真题】俄罗斯套娃信封问题【排序+最长上升子序列】
+
+👉 [【LeetCode 直通车】：354 俄罗斯套娃信封问题（困难）](https://leetcode-cn.com/problems/russian-doll-envelopes/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number[][]} envelopes
+ * @return {number}
+ */
+var maxEnvelopes = function(envelopes) {
+  if (envelopes.length === 1) return 1;
+    envelopes.sort((a, b) => {
+        if (a[0] !== b[0]) return a[0] - b[0];
+        else return b[1] - a[1];
+    });
+    let LISArr = [];
+    for (let [key, value] of envelopes) {
+      LISArr.push(value);
+    }
+    console.log( LISArr);
+    return LIS(LISArr);
+};
+function LIS(arr) {
+  let dp = [];
+  let maxAns = 0;
+  for (let i = 0; i < arr.length; i++) {
+    dp[i] = 1;
+  }
+  for (let i = 1; i < arr.length; i++) {
+    for (let j = i; j >= 0; j--) {
+      if (arr[i] > arr[j]) {
+        dp[i] = Math.max(dp[i], dp[j] + 1)
+      }
+      maxAns = Math.max(maxAns, dp[i]);
+    }
+  }
+  return maxAns;
+}
+
+复制代码
+```
+
+### 最长连续递增序列【快慢指针】
+
+👉 [【LeetCode 直通车】：674 最长连续递增序列（简单）](https://leetcode-cn.com/problems/longest-continuous-increasing-subsequence/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number[]} nums
+ * @return {number}
+ */
+var findLengthOfLCIS = function(nums) {
+    if (nums.length === 0) return 0;
+    const n = nums.length;
+    let left = 0, right = 1;
+    let globalMaxLen = 1, maxLen = 1;
+    while (right < n) {
+        if (nums[right] > nums[left]) maxLen++;
+        else {
+            maxLen = 1;
+        }
+        left++;
+        right++;
+        globalMaxLen = Math.max(globalMaxLen, maxLen);
+    }
+    return globalMaxLen;
+};
+
+复制代码
+```
+
+### 最长连续序列 【哈希表】
+
+👉 [【LeetCode 直通车】：128 最长连续序列（困难）](https://leetcode-cn.com/problems/longest-consecutive-sequence/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number[]} nums
+ * @return {number}
+ */
+var longestConsecutive = function(nums) {
+    if (nums.length === 0) return 0;
+    const set = new Set(nums);
+    const n = nums.length;
+    let globalLongest = 1;
+    for (let i = 0; i < n; i++) {
+        if (!set.has(nums[i] - 1)) {
+            let longest = 1;
+            let currentNum = nums[i];
+            while (set.has(currentNum + 1)) {
+                currentNum += 1;
+                longest++;
+            }
+            globalLongest = Math.max(globalLongest, longest);
+        }
+    }
+    return globalLongest;
+};
+
+复制代码
+```
+
+### 【面试真题】盛最多水的容器【哈希表】
+
+👉 [【LeetCode 直通车】：11 盛最多水的容器（中等）](https://leetcode-cn.com/problems/container-with-most-water/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number[]} height
+ * @return {number}
+ */
+var maxArea = function(height) {
+    let n = height.length;
+    let left = 0, right = n - 1;
+    let maxOpacity = 0;
+    while (left < right) {
+        let res = Math.min(height[left], height[right]) * (right - left);
+        maxOpacity = Math.max(maxOpacity, res);
+        if (height[left] < height[right]) left++
+        else right--;
+    }
+    return maxOpacity;
+};
+
+复制代码
+```
+
+### 寻找两个正序数组的中位数【双指针】
+
+👉 [【LeetCode 直通车】：4 寻找两个正序数组的中位数（困难）](https://leetcode-cn.com/problems/median-of-two-sorted-arrays/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number[]} nums1
+ * @param {number[]} nums2
+ * @return {number}
+ */
+var findMedianSortedArrays = function(nums1, nums2) {
+    let m = nums1.length, n = nums2.length;
+    let i = 0, j = 0;
+    let newArr = [];
+    while (i < m && j < n) {
+        if (nums1[i] < nums2[j]) {
+            newArr.push(nums1[i++]);
+        } else {
+            newArr.push(nums2[j++]);
+        }
+    }
+    newArr = newArr.concat(i < m ? nums1.slice(i) : nums2.slice(j));
+    const len = newArr.length;
+    console.log(newArr)
+    if (len % 2 === 0) {
+        return (newArr[len / 2] + newArr[len / 2 - 1]) / 2;
+    } else {
+        return newArr[Math.floor(len / 2)];
+    }
+};
+
+复制代码
+```
+
+### 删除有序数组中的重复项【快慢指针】
+
+👉 [【LeetCode 直通车】：26 删除有序数组中的重复项（简单）](https://leetcode-cn.com/problems/remove-duplicates-from-sorted-array/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number[]} nums
+ * @return {number}
+ */
+var removeDuplicates = function(nums) {
+  if (nums.length <= 1) return nums.length;
+  let lo = 0, hi = 0;
+  while (hi < nums.length) {
+    while (nums[lo] === nums[hi] && hi < nums.length) hi++;
+    if (nums[lo] !== nums[hi] && hi < nums.length) {
+      lo++;
+      nums[lo] = nums[hi];
+    }
+    hi++;
+  }
+  return lo + 1;
+};
+
+复制代码
+```
+
+### 和为K的子数组【哈希表】
+
+👉 [【LeetCode 直通车】：560 和为K的子数组（中等）](https://leetcode-cn.com/problems/subarray-sum-equals-k/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number[]} nums
+ * @param {number} k
+ * @return {number}
+ */
+var subarraySum = function(nums, k) {
+    let cnt = 0;
+    let sum0_i = 0, sum0_j = 0;
+    let map = new Map();
+    map.set(0, 1);
+    for (let i = 0; i <= nums.length; i++) {
+        sum0_i += nums[i];
+        sum0_j = sum0_i - k;
+        console.log('map', sum0_j, map.get(sum0_j))
+        if (map.has(sum0_j)) {
+            cnt += map.get(sum0_j);
+        }
+        let sumCnt = map.get(sum0_i) || 0;
+        map.set(sum0_i, sumCnt + 1);
+    }
+    return cnt;
+};
+
+复制代码
+```
+
+### nSum问题【哈希表】【系列】
+
+*   👉 [【LeetCode 直通车】：1 两数之和（简单）](https://leetcode-cn.com/problems/two-sum/)
+*   👉 [【LeetCode 直通车】：167 两数之和 II - 输入有序数组（简单）](https://leetcode-cn.com/problems/two-sum-ii-input-array-is-sorted/)
+*   👉 [【LeetCode 直通车】：15 三数之和（中等）](https://leetcode-cn.com/problems/3sum/)
+*   👉 [【LeetCode 直通车】：18 四数之和（中等）](https://leetcode-cn.com/problems/4sum/)
+
+受限于篇幅，这里只给出第一道题的代码模板，也是一面常考真题。
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number[]} nums
+ * @param {number} target
+ * @return {number[]}
+ */
+var twoSum = function(nums, target) {
+  let map2 = new Map();
+  for (let i = 0; i < nums.length; i++) {
+    map2.set(nums[i], i);
+  }
+  for (let i = 0; i < nums.length; i++) {
+    if (map2.has(target - nums[i]) && map2.get(target - nums[i]) !== i) return [i, map2.get(target - nums[i])]
+  }
+};
+
+复制代码
+```
+
+### 【面试真题】接雨水【暴力+备忘录优化】
+
+👉 [【LeetCode 直通车】：42 接雨水（困难）](https://leetcode-cn.com/problems/trapping-rain-water/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number[]} height
+ * @return {number}
+ */
+var trap = function(height) {
+    let l_max = [], r_max = [];
+    let len = height.length;
+    let maxCapacity = 0;
+    for (let i = 0; i < len; i++) {
+        l_max[i] = height[i];
+        r_max[i] = height[i];
+    }
+    for (let i = 1; i < len; i++) {
+        l_max[i] = Math.max(l_max[i - 1], height[i]);
+    }
+    for (let j = len - 2; j >= 0; j--) {
+        r_max[j] = Math.max(r_max[j + 1], height[j]);
+    }
+    for (let i = 0; i < len; i++) {
+        maxCapacity += Math.min(l_max[i], r_max[i]) - height[i];
+    }
+    return maxCapacity;
+};
+
+复制代码
+```
+
+### 跳跃游戏【贪心算法】【系列】
+
+*   👉 [【LeetCode 直通车】：55 跳跃游戏（中等）](https://leetcode-cn.com/problems/jump-game/)
+*   👉 [【LeetCode 直通车】：45 跳跃游戏 II（中等）](https://leetcode-cn.com/problems/jump-game-ii/)
+
+受限于篇幅，这里只给出第一道题的代码模板，也是一面常考真题。
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number[]} nums
+ * @return {boolean}
+ */
+var canJump = function(nums) {
+    let faster = 0;
+    for (let i = 0; i < nums.length - 1; i++) {
+        faster = Math.max(faster, i + nums[i]);
+        if (faster <= i) return false;
+    }
+    return faster >= nums.length - 1;
+};
+
+复制代码
+```
+
+## 高频算法题系列：二叉树
+
+主要有以下几类高频考题：
+
+*   二叉树的最近公共祖先【简单】【二叉树】
+*   二叉搜索树中的搜索【简单】【二叉树】
+*   删除二叉搜索树中的节点【中等】【二叉树】
+*   完全二叉树的节点个数【中等】【二叉树】
+*   二叉树的锯齿形层序遍历【中等】【二叉树】
+
+### 二叉树的最近公共祖先【二叉树】
+
+👉 [【LeetCode 直通车】：236 二叉树的最近公共祖先（简单）](https://leetcode-cn.com/problems/lowest-common-ancestor-of-a-binary-tree/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * Definition for a binary tree node.
+ * function TreeNode(val) {
+ *     this.val = val;
+ *     this.left = this.right = null;
+ * }
+ */
+/**
+ * @param {TreeNode} root
+ * @param {TreeNode} p
+ * @param {TreeNode} q
+ * @return {TreeNode}
+ */
+let visited;let parent;
+var lowestCommonAncestor = function(root, p, q) {
+    visited = new Set();
+    parent = new Map();
+    dfs(root);
+    while (p != null) {
+        visited.add(p.val);
+        p = parent.get(p.val);
+    }
+    while (q != null) {
+        if (visited.has(q.val)) {
+            return q;
+        }
+        q = parent.get(q.val);
+    }
+    return null;
+};
+function dfs(root) {
+    if (root.left != null) {
+        parent.set(root.left.val, root);
+        dfs(root.left);
+    }
+    if (root.right != null) {
+        parent.set(root.right.val, root);
+        dfs(root.right);
+    }
+}
+
+复制代码
+```
+
+### 二叉搜索树中的搜索【二叉树】
+
+👉 [【LeetCode 直通车】：700 二叉搜索树中的搜索（简单）](https://leetcode-cn.com/problems/search-in-a-binary-search-tree/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * Definition for a binary tree node.
+ * function TreeNode(val) {
+ *     this.val = val;
+ *     this.left = this.right = null;
+ * }
+ */
+/**
+ * @param {TreeNode} root
+ * @param {number} val
+ * @return {TreeNode}
+ */
+var searchBST = function(root, val) {
+    if (root == null) return null;
+    if (root.val === val) return root;
+    if (root.val > val) {
+        return searchBST(root.left, val);
+    } else if (root.val < val) {
+        return searchBST(root.right, val);
+    }
+};
+
+复制代码
+```
+
+### 删除二叉搜索树中的节点【二叉树】
+
+👉 [【LeetCode 直通车】：450 删除二叉搜索树中的节点（中等）](https://leetcode-cn.com/problems/delete-node-in-a-bst/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * Definition for a binary tree node.
+ * function TreeNode(val) {
+ *     this.val = val;
+ *     this.left = this.right = null;
+ * }
+ */
+/**
+ * @param {TreeNode} root
+ * @param {number} key
+ * @return {TreeNode}
+ */
+var deleteNode = function(root, key) {
+    if (root == null) return null;
+    if (root.val === key) {
+        if (root.left == null && root.right == null) return null;
+        if (root.left == null) return root.right;
+        if (root.right == null) return root.left;
+        if (root.left != null && root.right != null)  {
+            let target = getMinTreeMaxNode(root.left);
+            root.val = target.val;
+            root.left = deleteNode(root.left, target.val);
+        }
+    }
+    if (root.val < key) {
+        root.right = deleteNode(root.right, key);
+    } else if (root.val > key) {
+        root.left = deleteNode(root.left, key);
+    }
+    return root;
+};
+function getMinTreeMaxNode(root) {
+    if (root.right == null) return root;
+    return getMinTreeMaxNode(root.right);
+}
+
+复制代码
+```
+
+### 完全二叉树的节点个数【二叉树】
+
+👉 [【LeetCode 直通车】：222 完全二叉树的节点个数（中等）](https://leetcode-cn.com/problems/count-complete-tree-nodes/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * Definition for a binary tree node.
+ * function TreeNode(val) {
+ *     this.val = val;
+ *     this.left = this.right = null;
+ * }
+ */
+/**
+ * @param {TreeNode} root
+ * @return {number}
+ */
+var countNodes = function(root) {
+    if (root == null) return 0;
+    let l = root, r = root;
+    let lh = 0, rh = 0;
+    while (l != null) {
+      l = l.left;
+      lh++;
+    }
+    while (r != null) {
+      r = r.right;
+      rh++;
+    }
+    if (lh === rh) {
+      return Math.pow(2, lh) - 1;
+    }
+    return 1 + countNodes(root.left) + countNodes(root.right);
+};
+
+复制代码
+```
+
+### 二叉树的锯齿形层序遍历【二叉树】
+
+👉 [【LeetCode 直通车】：103 二叉树的锯齿形层序遍历（中等）](https://leetcode-cn.com/problems/binary-tree-zigzag-level-order-traversal/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * Definition for a binary tree node.
+ * function TreeNode(val) {
+ *     this.val = val;
+ *     this.left = this.right = null;
+ * }
+ */
+/**
+ * @param {TreeNode} root
+ * @return {number[][]}
+ */
+let res;
+var zigzagLevelOrder = function(root) {
+    if (root == null) return [];
+    res = [];
+    BFS(root, true);
+    return res;
+};
+function BFS(root, inOrder) {
+    let arr = [];
+    let resItem = [];
+    let node;
+    let stack1 = new Stack();
+    let stack2 = new Stack();
+    // 判断交换时机
+    let flag;
+    stack1.push(root);
+    res.push([root.val]);
+    inOrder = !inOrder;
+    while (!stack1.isEmpty() || !stack2.isEmpty()) {
+        if (stack1.isEmpty()) {
+            flag = 'stack1';
+        } else if (stack2.isEmpty()) {
+            flag = 'stack2';
+        }
+        // 决定取那个栈里面的元素
+        if (flag === 'stack2' && !stack1.isEmpty()) node = stack1.pop();
+        else if (flag === 'stack1' && !stack2.isEmpty()) node = stack2.pop();
+        if (inOrder) {
+            if (node.left) {
+                if (flag === 'stack1') {
+                    stack1.push(node.left);
+                } else {
+                    stack2.push(node.left);
+                }
+                resItem.push(node.left.val);
+            }
+            if (node.right) {
+                if (flag === 'stack1') {
+                    stack1.push(node.right);
+                } else {
+                    stack2.push(node.right);
+                }
+                resItem.push(node.right.val);
+            }
+        } else {
+            if (node.right) {
+                if (flag === 'stack1') {
+                    stack1.push(node.right);
+                } else {
+                    stack2.push(node.right);
+                }
+                resItem.push(node.right.val);
+            }
+            if (node.left) {
+                if (flag === 'stack1') {
+                    stack1.push(node.left);
+                } else {
+                    stack2.push(node.left);
+                }
+                resItem.push(node.left.val);
+            }
+        }
+        // 判断下次翻转的时机
+        if ((flag === 'stack2' && stack1.isEmpty()) || (flag === 'stack1' && stack2.isEmpty())) {
+            inOrder = !inOrder;
+            // 需要翻转了，就加一轮值
+            if (resItem.length > 0) {
+                res.push(resItem);
+            }   
+            resItem = [];
+        }
+    }
+}
+class Stack {
+    constructor() {
+        this.count = 0;
+        this.items = [];
+    }
+    push(element) {
+        this.items[this.count] = element;
+        this.count++;
+    }
+    pop() {
+        if (this.isEmpty()) return undefined;
+        const element = this.items[this.count - 1];
+        delete this.items[this.count - 1];
+        this.count--;
+        return element;
+    }
+    size() {
+        return this.count;
+    }
+    isEmpty() {
+        return this.size() === 0;
+    }
+}
+
+复制代码
+```
+
+## 【🔥】高频算法题系列：排序算法
+
+主要有以下几类高频考题：
+
+*   用最少数量的箭引爆气球【中等】【排序】
+*   合并区间【中等】【排序算法+区间问题】【面试真题】
+
+### 用最少数量的箭引爆气球【排序算法】
+
+👉 [【LeetCode 直通车】：452 用最少数量的箭引爆气球（中等）](https://leetcode-cn.com/problems/minimum-number-of-arrows-to-burst-balloons/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number[][]} points
+ * @return {number}
+ */
+var findMinArrowShots = function(points) {
+    if (points.length === 0) return 0;
+    points.sort((a, b) => a[1] - b[1]);
+    let cnt = 1;
+    let resArr = [points[0]];
+    let curr, last;
+    for (let i = 1; i < points.length; i++) {
+        curr = points[i];
+        last = resArr[resArr.length - 1];
+        if (curr[0] > last[1]) {
+            resArr.push(curr);
+            cnt++;
+        }
+    }
+    return cnt;
+};
+
+复制代码
+```
+
+### 合并区间【排序算法+区间问题】
+
+👉 [【LeetCode 直通车】：56 合并区间（中等）](https://leetcode-cn.com/problems/merge-intervals/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number[][]} intervals
+ * @return {number[][]}
+ */
+var merge = function(intervals) {
+    if (intervals.length === 0) return [];
+    intervals.sort((a, b) => a[0] - b[0]);
+    let mergeArr = [intervals[0]];
+    let last, curr;
+    for (let j = 1; j < intervals.length; j++) {
+        last = mergeArr[mergeArr.length - 1];
+        curr = intervals[j];
+        if (last[1] >= curr[0]) {
+            last[1] = Math.max(curr[1], last[1]);
+        } else {
+            mergeArr.push(curr);
+        }
+    }
+    return mergeArr;
+};
+
+复制代码
+```
+
+## 高频算法题系列：二分查找
+
+主要有以下几类高频考题：
+
+*   寻找两个正序数组的中位数【困难】【二分查找】
+*   判断子序列【简单】【二分查找】
+*   在排序数组中查找元素的第一个和最后一个位置【中等】【二分查找】
+
+### 寻找两个正序数组的中位数【二分查找】
+
+👉 [【LeetCode 直通车】：4 寻找两个正序数组的中位数（困难）](https://leetcode-cn.com/problems/median-of-two-sorted-arrays/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number[]} nums1
+ * @param {number[]} nums2
+ * @return {number}
+ */
+var findMedianSortedArrays = function(nums1, nums2) {
+    let m = nums1.length, n = nums2.length;
+    let i = 0, j = 0;
+    let newArr = [];
+    while (i < m && j < n) {
+        if (nums1[i] < nums2[j]) {
+            newArr.push(nums1[i++]);
+        } else {
+            newArr.push(nums2[j++]);
+        }
+    }
+    newArr = newArr.concat(i < m ? nums1.slice(i) : nums2.slice(j));
+    const len = newArr.length;
+    console.log(newArr)
+    if (len % 2 === 0) {
+        return (newArr[len / 2] + newArr[len / 2 - 1]) / 2;
+    } else {
+        return newArr[Math.floor(len / 2)];
+    }
+};
+
+复制代码
+```
+
+### 判断子序列【二分查找】
+
+👉 [【LeetCode 直通车】：392 判断子序列（简单）](https://leetcode-cn.com/problems/is-subsequence/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {string} s
+ * @param {string} t
+ * @return {boolean}
+ */
+var isSubsequence = function(s, t) {
+    let hash = {};
+    for (let i = 0; i < t.length; i++) {
+        if (!hash[t[i]]) hash[t[i]] = [];
+        hash[t[i]].push(i);
+    }
+    let lastMaxIndex = 0;
+    for (let i = 0; i < s.length; i++) {
+        if (hash[s[i]]) {
+            const index = binarySearch(hash[s[i]], lastMaxIndex);
+            console.log('index', index, hash[s[i]]);
+            if (index === -1) return false;
+            lastMaxIndex = hash[s[i]][index] + 1;
+        } else return false;
+    }
+    return true;
+};
+function binarySearch(array, targetIndex) {
+    let left = 0, right = array.length;
+    while (left < right) {
+        let mid = left + Math.floor((right - left) / 2);
+        if (array[mid] >= targetIndex) {
+            right = mid;
+        } else if (array[mid] < targetIndex) {
+            left = mid + 1;
+        }
+    }
+    if (left >= array.length || array[left] < targetIndex) return -1;
+    return left;
+}
+
+复制代码
+```
+
+### 💁 在排序数组中查找元素的第一个和最后一个位置【二分搜索】
+
+👉 [【LeetCode 直通车】：34 在排序数组中查找元素的第一个和最后一个位置（中等）](https://leetcode-cn.com/problems/find-first-and-last-position-of-element-in-sorted-array/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number[]} nums
+ * @param {number} target
+ * @return {number[]}
+ */
+var searchRange = function(nums, target) {
+    const left = leftBound(nums, target);
+    const right = rightBound(nums, target);
+    return [left, right];
+};
+function leftBound(nums, target) {
+    let left = 0;
+    let right = nums.length - 1;
+    while (left <= right) {
+        let mid = Math.floor(left + (right - left) / 2);
+        if (nums[mid] === target) {
+            right = mid - 1;
+        } else if (nums[mid] < target) {
+            left = mid + 1;
+        } else if (nums[mid] > target) {
+            right = mid - 1;
+        }
+    }
+    if (left >= nums.length || nums[left] !== target) {
+        return -1;
+    }
+    return left;
+}
+function rightBound(nums, target) {
+    let left = 0;
+    let right = nums.length - 1;
+    while (left <= right) {
+        let mid = Math.floor(left + (right - left) / 2);
+        if (nums[mid] === target) {
+            left = mid + 1;
+        } else if (nums[mid] < target) {
+            left = mid + 1;
+        } else if (nums[mid] > target) {
+            right = mid - 1;
+        }
+    }
+    if (right < 0 || nums[right] !== target) {
+        return -1;
+    }
+    return right;
+}
+
+复制代码
+```
+
+## 【🔥】高频算法题系列：动态规划
+
+主要有以下几类高频考题：
+
+*   最长递增子序列【中等】【动态规划】
+*   零钱兑换【中等】【动态规划】【面试真题】
+*   最长公共子序列 【中等】【动态规划】【面试真题】
+*   编辑距离 【困难】【动态规划】
+*   最长回文子序列【中等】【动态规划】【面试真题】
+*   最大子序和【简单】【动态规划】【面试真题】
+*   买卖股票的最佳时机系列【系列】【动态规划】【面试真题】
+
+### 最长递增子序列【动态规划】
+
+👉 [【LeetCode 直通车】：300 最长递增子序列（中等）](https://leetcode-cn.com/problems/longest-increasing-subsequence/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number[]} nums
+ * @return {number}
+ */
+var lengthOfLIS = function(nums) {
+    let maxLen = 0, n = nums.length;
+    let dp = [];
+    for (let i = 0; i < n; i++) {
+        dp[i] = 1;
+    }
+    for (let i = 0; i < n; i++) {
+        for (let j = 0; j < i; j++) {
+            if (nums[i] > nums[j]) {
+                dp[i] = Math.max(dp[i], dp[j] + 1);
+            }
+        }
+        maxLen = Math.max(maxLen, dp[i]);
+    }
+    return maxLen;
+};
+
+复制代码
+```
+
+### 【面试真题】 零钱兑换【动态规划】
+
+👉 [【LeetCode 直通车】：322 零钱兑换（中等）](https://leetcode-cn.com/problems/coin-change/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number[]} coins
+ * @param {number} amount
+ * @return {number}
+ */
+var coinChange = function(coins, amount) {
+  if (amount === 0) return 0;
+  let dp = [];
+  for (let i = 0; i <= amount; i++) {
+    dp[i] = amount + 1;
+  }
+  dp[0] = 0;
+  for (let i = 0; i <= amount; i++) {
+    for (let j = 0; j < coins.length; j++) {
+      if (i >= coins[j]) {
+        dp[i] = Math.min(dp[i - coins[j]] + 1, dp[i])
+      }
+    }
+  }
+  return dp[amount] === amount + 1 ? -1 : dp[amount];
+};
+
+复制代码
+```
+
+### 【面试真题】 最长公共子序列【动态规划】
+
+👉 [【LeetCode 直通车】：1143 最长公共子序列（中等）](https://leetcode-cn.com/problems/longest-common-subsequence/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {string} text1
+ * @param {string} text2
+ * @return {number}
+ */
+var longestCommonSubsequence = function(text1, text2) {
+    let n1 = text1.length, n2 = text2.length;
+    let dp = [];
+    for (let i = -1; i < n1; i++) {
+        dp[i] = [];
+        for (let j = -1; j < n2;j++) {
+            dp[i][j] = 0;
+        }
+    }
+    for (let i = 0; i < n1; i++) {
+        for (let j = 0; j < n2; j++) {
+            if (text1[i] === text2[j]) {
+                dp[i][j] = Math.max(dp[i][j], dp[i - 1][j - 1] + 1);
+            } else {
+                dp[i][j] = Math.max(dp[i - 1][j], dp[i][j - 1])
+            }
+        }
+    }
+    return dp[n1 - 1][n2 - 1];
+};
+
+复制代码
+```
+
+### 编辑距离【动态规划】
+
+👉 [【LeetCode 直通车】：72 编辑距离（困难）](https://leetcode-cn.com/problems/edit-distance/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {string} word1
+ * @param {string} word2
+ * @return {number}
+ */
+var minDistance = function(word1, word2) {
+  let len1 = word1.length, len2 = word2.length;
+  let dp = [];
+  for (let i = 0; i <= len1; i++) {
+    dp[i] = [];
+    for (let j = 0; j <= len2; j++) {
+      dp[i][j] = 0;
+      if (i === 0) {
+        dp[i][j] = j;
+      }
+      if (j === 0) {
+        dp[i][j] = i;
+      }
+    }
+  }
+  for (let i = 1; i <= len1; i++) {
+    for (let j = 1; j <= len2; j++) {
+      if (word1[i - 1] === word2[j - 1]) {
+        dp[i][j] = dp[i - 1][j - 1];
+      } else {
+        dp[i][j] = Math.min(dp[i - 1][j] + 1, dp[i][j - 1] + 1, dp[i - 1][j - 1] + 1);
+      }
+    }
+  }
+  return dp[len1][len2];
+};
+
+复制代码
+```
+
+### 【面试真题】最长回文子序列【动态规划】
+
+👉 [【LeetCode 直通车】：516 最长回文子序列（中等）](https://leetcode-cn.com/problems/longest-palindromic-subsequence/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {string} s
+ * @return {number}
+ */
+var longestPalindromeSubseq = function(s) {
+    let dp = [];
+    for (let i = 0; i < s.length; i++) {
+        dp[i] = [];
+        for (let j = 0; j < s.length; j++) {
+            dp[i][j] = 0;
+        }
+        dp[i][i] = 1;
+    }
+    for (let i = s.length - 1; i >= 0; i--) {
+        for (let j = i + 1; j < s.length; j++) {
+            if (s[i] === s[j]) {
+                dp[i][j] = dp[i + 1][j - 1] + 2;
+            } else {
+                dp[i][j] = Math.max(dp[i + 1][j], dp[i][j - 1]);
+            }
+        }
+    }
+    return dp[0][s.length - 1];
+};
+
+复制代码
+```
+
+### 【面试真题】💁 最大子序和【动态规划】
+
+👉 [【LeetCode 直通车】：53 最大子序和（简单）](https://leetcode-cn.com/problems/maximum-subarray/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number[]} nums
+ * @return {number}
+ */
+var maxSubArray = function(nums) {
+    let maxSum = -Infinity;
+    let dp = [], n = nums.length;
+    for (let i = -1; i < n; i++) {
+        dp[i] = 0;
+    }
+    for (let i = 0; i < n; i++) {
+        dp[i] = Math.max(nums[i], dp[i - 1] + nums[i]);
+        maxSum = Math.max(maxSum, dp[i]);
+    }
+    return maxSum;
+};
+
+复制代码
+```
+
+### 【面试真题】💁 买卖股票的最佳时机【动态规划】
+
+*   👉 [【LeetCode 直通车】：121 买卖股票的最佳时机（简单）](https://leetcode-cn.com/problems/container-with-most-water/)【面试真题】
+*   👉 [【LeetCode 直通车】：122 买卖股票的最佳时机 II（简单）](https://leetcode-cn.com/problems/best-time-to-buy-and-sell-stock-ii/)
+*   👉 [【LeetCode 直通车】：123 买卖股票的最佳时机 III（困难）](https://leetcode-cn.com/problems/best-time-to-buy-and-sell-stock-iii/)
+*   👉 [【LeetCode 直通车】：188 买卖股票的最佳时机IV（困难）](https://leetcode-cn.com/problems/container-with-most-water/)
+*   👉 [【LeetCode 直通车】：309 买卖股票的最佳时机含冷冻期（中等）](https://leetcode-cn.com/problems/best-time-to-buy-and-sell-stock-with-cooldown/)
+*   👉 [【LeetCode 直通车】：714 买卖股票的最佳时机含手续费（中等）](https://leetcode-cn.com/problems/best-time-to-buy-and-sell-stock-with-transaction-fee/)
+
+受限于篇幅，这里只给出第一道题的代码模板，也是一面常考真题，笔者在面试字节跳动时就遇到过。
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number[]} prices
+ * @return {number}
+ */
+var maxProfit = function(prices) {
+  let dp = [];
+  for (let i = -1; i < prices.length; i++) {
+    dp[i] = []
+    for (let j = 0; j <= 1; j++) {
+      dp[i][j] = [];
+      dp[i][j][0] = 0;
+      dp[i][j][1] = 0;
+      if (i === -1) {
+        dp[i][j][1] = -Infinity;
+      }
+      if (j === 0) {
+        dp[i][j][1] = -Infinity;
+      }
+      if (j === -1) {
+        dp[i][j][1] = -Infinity;
+      }
+    }
+  }
+  for (let i = 0; i < prices.length; i++) {
+    for (let j = 1; j <= 1; j++) {
+      dp[i][j][0] = Math.max(dp[i - 1][j][0], dp[i - 1][j][1] + prices[i]);
+      dp[i][j][1] = Math.max(dp[i - 1][j][1], dp[i - 1][j - 1][0] - prices[i]);
+    }
+  }
+  return dp[prices.length - 1][1][0];
+};
+
+复制代码
+```
+
+## 高频算法题系列：BFS
+
+主要有以下几类高频考题：
+
+*   打开转盘锁【中等】【BFS】
+*   二叉树的最小深度【简单】【BFS】
+
+### 打开转盘锁【BFS】
+
+👉 [【LeetCode 直通车】：752 打开转盘锁（中等）](https://leetcode-cn.com/problems/open-the-lock/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {string[]} deadends
+ * @param {string} target
+ * @return {number}
+ */
+var openLock = function(deadends, target) {
+  let queue = new Queue();
+  let visited = new Set();
+  let step = 0;
+  queue.push('0000');
+  visited.add('0000');
+  while (!queue.isEmpty()) {
+    let size = queue.size();
+    for (let i = 0; i < size; i++) {
+      let str = queue.pop();
+      if (deadends.includes(str)) continue;
+      if (target === str) {
+        return step;
+      }
+      for (let j = 0; j < 4; j++) {
+        let plusStr = plusOne(str, j);
+        let minusStr = minusOne(str, j);
+        if (!visited.has(plusStr)) {
+          queue.push(plusStr);
+          visited.add(plusStr)
+        }
+        if (!visited.has(minusStr)) {
+          queue.push(minusStr);
+          visited.add(minusStr)
+        }
+      }
+    }
+    step++;
+  }
+  return -1;
+};
+function plusOne(str, index) {
+  let strArr = str.split('');
+  if (strArr[index] === '9') {
+    strArr[index] = '0'
+  } else {
+    strArr[index] = (Number(strArr[index]) + 1).toString()
+  }
+  return strArr.join('');
+}
+function minusOne(str, index) {
+  let strArr = str.split('');
+  if (strArr[index] === '0') {
+    strArr[index] = '9'
+  } else {
+    strArr[index] = (Number(strArr[index]) - 1).toString()
+  }
+  return strArr.join('');
+}
+class Queue {
+  constructor() {
+    this.items = [];
+    this.count = 0;
+    this.lowerCount = 0;
+  }
+  push(elem) {
+    this.items[this.count++] = elem;
+  }
+  pop() {
+    if (this.isEmpty()) {
+      return;
+    }
+    const elem = this.items[this.lowerCount];
+    delete this.items[this.lowerCount];
+    this.lowerCount++;
+    return elem;
+  }
+  isEmpty() {
+    if (this.size() === 0) return true;
+    return false;
+  }
+  size() {
+    return this.count - this.lowerCount;
+  }
+}
+
+复制代码
+```
+
+### 二叉树的最小深度【BFS】
+
+👉 [【LeetCode 直通车】：111 二叉树的最小深度（简单）](https://leetcode-cn.com/problems/minimum-depth-of-binary-tree/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * Definition for a binary tree node.
+ * function TreeNode(val) {
+ *     this.val = val;
+ *     this.left = this.right = null;
+ * }
+ */
+/**
+ * @param {TreeNode} root
+ * @return {number}
+ */
+var minDepth = function(root) {
+  if (root == null) return 0;
+  let depth = 1;
+  let queue = new Queue();
+  queue.push(root);
+  while (!queue.isEmpty()) {
+    let size = queue.size();
+    for (let i = 0; i < size; i++) {
+      const node = queue.pop();
+      if (node.left == null && node.right == null) return depth;
+      if (node.left) {
+        queue.push(node.left);
+      }
+      if (node.right) {
+        queue.push(node.right);
+      }
+    }
+    depth++;
+  }
+  return depth;
+};
+class Queue {
+  constructor() {
+    this.items = [];
+    this.count = 0;
+    this.lowerCount = 0;
+  }
+  push(elem) {
+    this.items[this.count++] = elem;
+  }
+  pop() {
+    if (this.isEmpty()) {
+      return;
+    }
+    const elem = this.items[this.lowerCount];
+    delete this.items[this.lowerCount];
+    this.lowerCount++;
+    return elem;
+  }
+  isEmpty() {
+    if (this.size() === 0) return true;
+    return false;
+  }
+  size() {
+    return this.count - this.lowerCount;
+  }
+}
+
+复制代码
+```
+
+## 【🔥】高频算法题系列：栈
+
+主要有以下几类高频考题：
+
+*   最小栈【简单】【栈】
+*   有效的括号【中等】【栈】【面试真题】
+*   简化路径【中等】【栈】
+*   下一个更大元素 【系列】【栈】
+
+### 最小栈【栈】
+
+👉 [【LeetCode 直通车】：155 最小栈（简单）](https://leetcode-cn.com/problems/min-stack/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * initialize your data structure here.
+ */
+var MinStack = function() {
+    this.stack = [];
+    this.minArr = [];
+    this.count = 0;
+    this.min = Number.MAX_SAFE_INTEGER;
+};
+/** 
+ * @param {number} x
+ * @return {void}
+ */
+MinStack.prototype.push = function(x) {
+    this.min = Math.min(this.min, x);
+    this.minArr[this.count] = this.min;
+    this.stack[this.count] = x;
+    this.count++;
+};
+/**
+ * @return {void}
+ */
+MinStack.prototype.pop = function() {
+    const element = this.stack[this.count - 1];
+    if (this.count - 2 >= 0) this.min = this.minArr[this.count - 2];
+    else  this.min = Number.MAX_SAFE_INTEGER;
+    delete this.stack[this.count - 1];
+    delete this.minArr[this.count - 1];
+    this.count--;
+    return element;
+};
+/**
+ * @return {number}
+ */
+MinStack.prototype.top = function() {
+    if (this.count >= 1) {
+        return this.stack[this.count - 1];
+    }
+    return null;
+};
+/**
+ * @return {number}
+ */
+MinStack.prototype.getMin = function() {
+    const element = this.minArr[this.count - 1];
+    return element;
+};
+/**
+ * Your MinStack object will be instantiated and called as such:
+ * var obj = new MinStack()
+ * obj.push(x)
+ * obj.pop()
+ * var param_3 = obj.top()
+ * var param_4 = obj.getMin()
+ */
+
+复制代码
+```
+
+### 【系列】下一个更大元素 【栈】
+
+*   👉 [【LeetCode 直通车】：496 下一个更大元素 I（简单）](https://leetcode-cn.com/problems/next-greater-element-i/)
+*   👉 [【LeetCode 直通车】：503 下一个更大元素 II（中等）](https://leetcode-cn.com/problems/next-greater-element-ii/)
+
+受限于篇幅，这里只给出第一道题的代码模板
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number[]} nums
+ * @return {number[]}
+ */
+var nextGreaterElements = function(nums) {
+    let ans = [];
+    let stack = new Stack();
+    const n = nums.length;
+    for (let i = 2 * n - 1; i >= 0; i--) {
+        while (!stack.isEmpty() && stack.top() <= nums[i % n]) {
+            stack.pop();
+        }
+        ans[i % n] = stack.isEmpty() ? -1 : stack.top();
+        stack.push(nums[i % n]);
+    }
+    return ans;
+};
+class Stack {
+    constructor() {
+        this.count = 0;
+        this.items = [];
+    }
+    top() {
+        if (this.isEmpty()) return undefined;
+        return this.items[this.count - 1];
+    }
+    push(element) {
+        this.items[this.count] = element;
+        this.count++;
+    }
+    pop() {
+        if (this.isEmpty()) return undefined;
+        const element = this.items[this.count - 1];
+        delete this.items[this.count - 1];
+        this.count--;
+        return element;
+    }
+    isEmpty() {
+        return this.size() === 0;
+    }
+    size() {
+        return this.count;
+    }
+}
+
+复制代码
+```
+
+### 【面试真题】有效的括号【栈】
+
+👉 [【LeetCode 直通车】：20 有效的括号（中等）](https://leetcode-cn.com/problems/valid-parentheses/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {string} s
+ * @return {boolean}
+ */
+var isValid = function(s) {
+    if (s.length === 0) {
+        return true;
+    }
+    if (s.length % 2 !== 0) {
+        return false;
+    }
+    let map = {
+        ')': '(',
+        ']': '[',
+        '}': '{',
+    };
+    let left = ['(', '[', '{'];
+    let right = [')', ']', '}'];
+    let stack = new Stack();
+    for (let i = 0; i < s.length; i++) {
+        if (!right.includes(s[i])) {
+            stack.push(s[i]);
+        } else {
+            const matchStr = map[s[i]];
+            while (!stack.isEmpty()) {
+                const element = stack.pop();
+                if (left.includes(element) && matchStr !== element)  return false;
+                if (element === matchStr) break;
+            }
+        }
+    }
+    return stack.isEmpty();
+};
+class Stack {
+    constructor() {
+        this.count = 0;
+        this.items = [];
+    }
+    push(element) {
+        this.items[this.count] = element;
+        this.count++;
+    }
+    pop() {
+        if (this.isEmpty()) return undefined;
+        const element = this.items[this.count - 1];
+        delete this.items[this.count - 1];
+        this.count--;
+        return element;
+    }
+    isEmpty() {
+        return this.size() === 0;
+    }
+    size() {
+        return this.count;
+    }
+}
+
+复制代码
+```
+
+### 简化路径【栈】
+
+👉 [【LeetCode 直通车】：71 简化路径（中等）](https://leetcode-cn.com/problems/simplify-path/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {string} path
+ * @return {string}
+ */
+var simplifyPath = function(path) {
+    let newPath = path.split('/');
+    newPath = newPath.filter(item => item !== "");
+    const stack = new Stack();
+    for (let s of newPath) {
+        if (s === '..') stack.pop();
+        else if (s !== '.') stack.push(s);
+    }
+    if (stack.isEmpty()) return '/';
+    let str = '';
+    while (!stack.isEmpty()) {
+        const element = stack.pop();
+        str = '/' + element + str;
+    }
+    return str;
+};
+function handleBack(stack, tag, num) {
+    if (!stack.isEmpty()) return num;
+    const element = stack.pop();
+    if (element === '..') return handleBack(stack, tag, num + 1);
+    else {
+        stack.push(element);
+        return num;
+    }
+}
+class Stack {
+    constructor() {
+        this.count = 0;
+        this.items = [];
+    }
+    push(element) {
+        this.items[this.count] = element;
+        this.count++;
+    }
+    pop() {
+        if (this.isEmpty()) return undefined;
+        const element = this.items[this.count - 1];
+        delete this.items[this.count - 1];
+        this.count--;
+        return element;
+    }
+    size() {
+        return this.count;
+    }
+    isEmpty() {
+        return this.size() === 0;
+    }
+}
+
+复制代码
+```
+
+## 【🔥】高频算法题系列：DFS
+
+主要有以下几类高频考题：
+
+*   岛屿的最大面积【中等】【DFS】
+*   相同的树【简单】【DFS】
+
+### 岛屿的最大面积【DFS】
+
+👉 [【LeetCode 直通车】：695 岛屿的最大面积（中等）](https://leetcode-cn.com/problems/max-area-of-island/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number[][]} grid
+ * @return {number}
+ */
+let maxX, maxY;let visited;let globalMaxArea;
+var maxAreaOfIsland = function(grid) {
+    visited = new Set();
+    maxX = grid.length;
+    maxY = grid[0].length;
+    globalMaxArea = 0;
+    for (let i = 0; i < maxX; i++) {
+        for (let j = 0; j < maxY; j++) {
+            if (grid[i][j] === 1) {
+                visited.add(`(${i}, ${j})`);
+                globalMaxArea = Math.max(globalMaxArea, dfs(grid, i, j));
+            }
+            visited.clear();
+        }
+    }
+    return globalMaxArea;
+};
+function dfs(grid, x, y) {
+    let res = 1;
+    for (let i = -1; i <= 1; i++) {
+        for (let j = -1; j <= 1; j++) {
+            if (Math.abs(i) === Math.abs(j)) continue;
+            const newX = x + i;
+            const newY = y + j;
+            if (newX >= maxX || newX < 0 || newY >= maxY || newY < 0) continue;
+            if (visited.has(`(${newX}, ${newY})`)) continue;
+            visited.add(`(${newX}, ${newY})`);
+            const areaCnt = grid[newX][newY]
+            if (areaCnt === 1) {
+                const cnt = dfs(grid, newX, newY);
+                res += cnt;
+            } 
+        }
+    }
+    return res;
+}
+
+复制代码
+```
+
+### 相同的树【DFS】
+
+👉 [【LeetCode 直通车】：100 相同的树（简单）](https://leetcode-cn.com/problems/same-tree/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * Definition for a binary tree node.
+ * function TreeNode(val) {
+ *     this.val = val;
+ *     this.left = this.right = null;
+ * }
+ */
+/**
+ * @param {TreeNode} p
+ * @param {TreeNode} q
+ * @return {boolean}
+ */
+var isSameTree = function(p, q) {
+    if (p == null && q == null) return true;
+    if (p == null || q == null) return false;
+    if (p.val !== q.val) return false;
+    return isSameTree(p.left, q.left) && isSameTree(p.right, q.right);
+};
+
+复制代码
+```
+
+## 【🔥】高频算法题系列：回溯算法
+
+主要有以下几类高频考题：
+
+*   N皇后【困难】【回溯算法】【面试真题】
+*   全排列【中等】【回溯算法】
+*   括号生成【中等】【回溯算法】
+*   复原 IP 地址【中等】【回溯算法】
+*   子集 【简单】【回溯算法】
+
+### 【面试真题】N皇后【回溯算法】
+
+👉 [【LeetCode 直通车】：51 N皇后（困难）](https://leetcode-cn.com/problems/n-queens/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number} n
+ * @return {string[][]}
+ */
+let result = [];
+var solveNQueens = function(n) {
+    result = [];
+    let board = [];
+    for (let i = 0; i < n; i++) {
+      board[i] = [];
+      for (let j = 0; j < n; j++) {
+        board[i][j] = '.'
+      }
+    }
+    backtrack(0, board, n);
+    return result;
+};
+function deepClone(board) {
+  let res = [];
+  for (let i = 0; i < board.length; i++) {
+    res.push(board[i].join(''));
+  }
+  return res;
+}
+function backtrack(row, board, n) {
+    if (row === n) {
+      result.push(deepClone(board));
+      return;
+    }
+    for (let j = 0; j < n; j++) {
+        if (checkInValid(board, row, j, n)) continue;
+        board[row][j] = 'Q';
+        backtrack(row + 1, board, n);
+        board[row][j] = '.';
+      }
+}
+function checkInValid(board, row, column, n) {
+  // 行
+  for (let i = 0; i < n; i++) {
+    if (board[i][column] === 'Q') return true;
+  }
+  for (let i = row - 1, j = column + 1; i >= 0 && j < n; i--, j++) {
+    if (board[i][j] === 'Q') return true;
+  }
+  for (let i = row - 1, j = column - 1; i >= 0 && j >= 0; i--, j--) {
+    if (board[i][j] === 'Q') return true;
+  }
+  return false;
+}
+
+复制代码
+```
+
+### 全排列【回溯算法】
+
+👉 [【LeetCode 直通车】：46 全排列（中等）](https://leetcode-cn.com/problems/permutations/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number[]} nums
+ * @return {number[][]}
+ */
+let results = [];var permute = function(nums) {
+    results = [];
+    backtrack(nums, []);
+    return results;
+};
+function backtrack(nums, track) {
+    if (nums.length === track.length) {
+        results.push(track.slice());
+        return;
+    }
+    for (let i = 0; i < nums.length; i++) {
+        if (track.includes(nums[i])) continue;
+        track.push(nums[i]);
+        backtrack(nums, track);
+        track.pop();
+    }
+}
+
+复制代码
+```
+
+### 括号生成【回溯算法】
+
+👉 [【LeetCode 直通车】：22 括号生成（中等）](https://leetcode-cn.com/problems/generate-parentheses/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number} n
+ * @return {string[]}
+ */
+var generateParenthesis = function(n) {
+    let validRes = [];
+    backtrack(n * 2, validRes, '');
+    return validRes;
+};
+function backtrack(len, validRes, bracket) {
+    if (bracket.length === len) {
+        if (isValidCombination(bracket)) {
+            validRes.push(bracket);
+        }
+        return;
+    }
+    for (let str of ['(', ')']) {
+        bracket += str;
+        backtrack(len, validRes, bracket);
+        bracket = bracket.slice(0, bracket.length - 1);
+    }
+}
+function isValidCombination(bracket) {
+    let stack = new Stack();
+    for (let i = 0; i < bracket.length; i++) {
+        const str = bracket[i];
+        if (str === '(') {
+            stack.push(str);
+        } else if (str === ')') {
+            const top = stack.pop();
+            if (top !== '(') return false;
+        }
+    }
+    return stack.isEmpty();
+}
+class Stack {
+    constructor() {
+        this.count = 0;
+        this.items = [];
+    }
+    push(element) {
+        this.items[this.count] = element;
+        this.count++;
+    }
+    pop() {
+        if (this.isEmpty()) return;
+        const element = this.items[this.count - 1];
+        delete this.items[this.count - 1];
+        this.count--;
+        return element;
+    }
+    size() {
+        return this.count;
+    }
+    isEmpty() {
+        return this.size() === 0;
+    }
+}
+
+复制代码
+```
+
+### 复原 IP 地址【回溯算法】
+
+👉 [【LeetCode 直通车】：93 复原 IP 地址（中等）](https://leetcode-cn.com/problems/restore-ip-addresses/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {string} s
+ * @return {string[]}
+ */
+var restoreIpAddresses = function(s) {
+    if (s.length > 12) return [];
+    let res = [];
+    const track = [];
+    backtrack(s, track, res);
+    return res;
+};
+function backtrack(s, track, res) {
+    if (track.length === 4 && s.length === 0) {
+        res.push(track.join('.'));
+        return;
+    }
+    let len = s.length >= 3 ? 3 : s.length;
+    for (let i = 0; i < len; i++) {
+        const c = s.slice(0, i + 1);
+        if (parseInt(c) > 255) continue;
+        if (i >= 1 &&  parseInt(c) < parseInt((1 + '0'.repeat(i)))) continue;
+        track.push(c);
+        backtrack(s.slice(i + 1), track, res);
+        track.pop();
+    }
+}
+
+复制代码
+```
+
+### 子集【回溯算法】
+
+👉 [【LeetCode 直通车】：78 子集（中等）](https://leetcode-cn.com/problems/subsets/)
+
+#### 题解
+
+→点击展开查看
+
+```
+
+/**
+ * @param {number[]} nums
+ * @return {number[][]}
+ */
+var subsets = function(nums) {
+    if (nums.length === 0) return [[]];
+    let resArr = [];
+    backtrack(nums, 0, [], resArr);
+    return resArr;
+};
+function backtrack(nums, index, subArr, resArr) {
+    if (Array.isArray(subArr)) {
+        resArr.push(subArr.slice());
+    }
+    if (index === nums.length) {
+        return;
+    } 
+    for (let i = index; i < nums.length; i++) {
+        subArr.push(nums[i]);
+        backtrack(nums, i + 1, subArr, resArr);
+        subArr.pop(nums[i]);
+    }
+}
+
+复制代码
+```
+原文地址 [干货文章分享](https://ideras.com) - [字节跳动最常考的 64 道JS算法题](https://ideras.com/zi-jie-tiao-dong-zui-ai-kao-de-64-dao-suan-fa-ti-jsban/)
+
+### 原创不易
+
+喜欢的话原创不易，给点鼓励吧 ❤️ 别忘了 分享、点赞、在看 三连哦~。
